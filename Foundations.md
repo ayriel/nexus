@@ -1,8 +1,16 @@
 Institutionalizing Radicalism
 
-The emotive, authentic radicalism of the anti-war movement evolves into a socialist orthodoxy within American institutions.
+The emotive, authentic radicalism of the 1960's anti-war movement evolves into a socialist orthodoxy within American institutions.
 
-1971, 1989 - "Rules for Radicals", Saul D. Alinsky  
+Saul Alinsky and "Rules for Radicals"  
+George Soros (Gyorgy Schwartz) and the Open Society Foundations  
+The National Education Association  
+The World Economic Forum and the Davos Agenda  
+Klaus Schwab and "The Great Reset"  
+
+<hr>
+
+"Rules for Radicals", Saul D. Alinsky, 1979, 1989.  
 [Citzens Handbook](https://citizenshandbook.org/rules.html)
 
 Rule 1: Power is not only what you have, but what an opponent thinks you have. If your organization is small, hide your numbers in the dark and raise a din that will make everyone think you have many more people than you do.
